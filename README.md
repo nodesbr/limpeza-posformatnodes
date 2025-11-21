@@ -11,3 +11,10 @@ As linhas de comando contidos no código, os quais você pode olhar livremente, 
 **iGust:** https://www.youtube.com/@igustt
 **DeepSeek:** https://chat.deepseek.com/
 
+<img width="882" height="512" alt="Sem título2" src="https://github.com/user-attachments/assets/1dfcc562-f7a2-4021-953f-376ab9922d83" />
+
+<img width="882" height="672" alt="Sem título3" src="https://github.com/user-attachments/assets/be18205c-db4f-4e97-aa2b-73f471771ddd" />
+
+<img width="882" height="752" alt="Sem título4" src="https://github.com/user-attachments/assets/d06c0846-7792-4120-a3cb-53cbe73a7ec1" />
+
+<img width="878" height="750" alt="Sem título5" src="https://github.com/user-attachments/assets/7a1a6b7f-af9a-416f-9f8b-05c32c43adaa" />
